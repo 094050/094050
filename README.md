@@ -1,0 +1,2 @@
+
+https://m.pgcool.com/treasures-aztec/index.html?__refer=m.pgjksonc.club&__sv=0&&language=th&operator_token=C7C730D1-1539-497F-A880-163B1F575C06&bet_type=1&t=0FCC2569-5CDB-485E-BFB1-94ED0EA003A1&from=https%3A%2F%2Fm.pgcool.com%2Flobby%2Findex.html%3F__refer%3Dm.pgjksonc.club%26__sv%3D0%26%26language%3Dth%26operator_token%3DC7C730D1-1539-497F-A880-163B1F575C06%26bet_type%3D1%26t%3D0FCC2569-5CDB-485E-BFB1-94ED0EA003A1
